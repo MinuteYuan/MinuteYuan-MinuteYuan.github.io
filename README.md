@@ -1,1 +1,1 @@
-# MinuteYuan-MinuteYuan.github.io
+# MinuteYuan Github Pages
